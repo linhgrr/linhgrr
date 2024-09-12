@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Facebook.com/LinhFc.Mc**
 
-- 📄 Know about my experiences [https://www.topcv.vn/xem-cv/AFAFUQcOWAcLU11RWlVXCgRQDwxWUwcFUg1WXw8a18](https://www.topcv.vn/xem-cv/AFAFUQcOWAcLU11RWlVXCgRQDwxWUwcFUg1WXw8a18)
+- 📄 Know about my experiences 
 
 - ⚡ Fun fact **vjp pro ultimate handsome**
 
