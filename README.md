@@ -5,11 +5,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=linhgrr" alt="linhgrr" /></a> </p>
 
-- 🔭 I’m currently working on **my project :v**
+- 🌱 I’m currently learning **Nguyễn Lan Phương**
 
-- 🌱 I’m currently learning **Spring Boot**
-
-- 👯 I’m looking to collaborate on **java**
+- 👯 I’m looking to collaborate on **love**
 
 - 📫 How to reach me **Facebook.com/LinhFc.Mc**
 
